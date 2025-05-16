@@ -11,7 +11,7 @@
 #### National League
 
 - **East Division**:The Philadelphia Phillies led the division, maintaining a competitive edge throughout the season
-- **Central Division**:The Cincinnati Reds emerged as division champions, highlighting their growth
+- **Central Division**:The Milwaukee Brewers emerged as division champions, highlighting their growth
 - **West Division**:The Los Angeles Dodgers dominated the division, finishing with the best record in the league
 
 ---
